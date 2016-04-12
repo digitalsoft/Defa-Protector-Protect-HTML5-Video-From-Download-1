@@ -21,3 +21,18 @@ If you like our project, Please Donate us : http://www.juthawong.com/donate
 Help Us Promote this software using this pad Files : http://download.juthawong.com/project/defaprotector.xml
 ###Joomla
 To Be Announced Soon
+
+##Outdated
+
+This Source Code is Outdated Version of Defa Protector , For Better and Newer Version , Please Download on Sourceforge
+
+http://sourceforge.net/projects/defaprotecthtml5videodownload/files/?source=navbar
+
+##Investor
+We looking forward for investor for this project
+
+For More News Visit : http://stocks.newsok.com/newsok/news/read/31861376
+
+###Visit Us
+http://www.juthawong.com/
+http://www.ampareengine.com/
